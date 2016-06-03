@@ -6,4 +6,4 @@ BUT
 Let me evolve into an elegant Articuno, pretty pleasee!
 
 
-Thanks.
+Thanks, you.
